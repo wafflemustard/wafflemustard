@@ -17,7 +17,7 @@ you can find stuff i make on
 * [twitter](https://twitter.com/wafflemustard) - if you like very inactive accounts that occasionally tweet links to stuff on other platforms
 * [linktree](https://linktr.ee/wafflemustard) - if you want to see all of these links again in a list but this time without my dubiously helpful descriptions distracting you
 
-that's all i got. whatever you're about to do, have fun
+that's all i got. have a pleasant day
 
 
 <!--
